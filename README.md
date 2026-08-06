@@ -1,1 +1,0 @@
-# EDITH-Core-AI
